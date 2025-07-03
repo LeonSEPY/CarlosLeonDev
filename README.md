@@ -27,7 +27,7 @@
 
 ### 📫 How to reach me:
 - LinkedIn: [linkedin.com/in/carlossepulvedaleon](https://www.linkedin.com/in/carlos-andres-sepulveda-leon-a130b9238/)
-- Email: carlos.paez@uptc.edu.co  
+- Email: leonsepulvedacarlos@gmail.com  
 - ResearchGate: [researchgate.net/profile/Carlos-Sepulveda-Leon](https://www.researchgate.net/)
 
 Supports or grants. Paypal: @CSepulvedaLeon
